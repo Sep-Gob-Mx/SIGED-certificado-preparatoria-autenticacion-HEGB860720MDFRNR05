@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HEGB860720MDFRNR05
+HEGB860720MDFRNR05
